@@ -1,0 +1,1 @@
+The president of South Korea is corrupted and privatizing the national assets.
